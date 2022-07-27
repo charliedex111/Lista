@@ -8,3 +8,12 @@ https://vdownload-28.sb-cd.com/1/0/10892910-720p.mp4?secure=nL_XaF_0yd9VqdGKMGeO
 
 #EXTINF:-1679 tvg-name="Stella Cox GangBang" tvg-logo="https://static.spankbang.com/pornstarimg/f/281-250.jpg" group-title="Stella Cox",Stella Cox GangBang
 https://vdownload-9.sb-cd.com/1/1/11799072-1080p.mp4?secure=PD86zr2sAJbI_khF7PPOmw,1658949701&m=9&d=3&_tid=11799072
+
+#EXTINF:-1679 tvg-name="Stella Cox BBC Mandigo" tvg-logo="https://static.spankbang.com/pornstarimg/f/281-250.jpg" group-title="Stella Cox",Stella Cox BBC Mandigo
+https://vdownload-36.sb-cd.com/9/3/9382863-1080p.mp4?secure=YTbmH1Fp6Lboz2b7F7T33Q,1658950254&m=36&d=4&_tid=9382863
+
+#EXTINF:-1679 tvg-name="Stella Cox Infiel" tvg-logo="https://static.spankbang.com/pornstarimg/f/281-250.jpg" group-title="Stella Cox",Stella Cox Infiel
+https://vdownload-27.sb-cd.com/9/3/9363627-1080p.mp4?secure=wQLKY5qOznZ0Q1el1Xf5Yg,1658951922&m=27&d=1&_tid=9363627
+
+#EXTINF:-1679 tvg-name="Lana Rhoades Anal" tvg-logo="https://static.spankbang.com/pornstarimg/f/9261-250.jpg" group-title="Lana Rhoades",Lana Rhoades Anal
+https://vdownload-22.sb-cd.com/1/0/10486966-1080p.mp4?secure=I8Wk7zGxVhviO9YK6LJwlg,1658952073&m=22&d=5&_tid=10486966
